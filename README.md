@@ -1,1 +1,1 @@
- https://ratnakargiri973.github.io/My-resume/
+https://github.com/ratnakargiri973/My-resume/settings/pages
